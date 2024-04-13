@@ -1,1 +1,0 @@
-# platolinc.github.io
